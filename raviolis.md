@@ -1,0 +1,42 @@
+⸻
+
+🧾 Ingrédients（30 raviolis）
+• Bœuf haché 15% MG — 300 g
+• Ciboulette chinoise — 180–200 g
+• 1 œuf
+• Feuilles de raviolis / wontons — 30 pcs
+⸻
+💧 Eau parfumée asiatique
+• Eau chaude — 50 g
+• Gingembre frais — 10 g
+• Poivre du Sichuan — une pincée
+👉 Faire infuser 5 minutes.
+Puis laisser refroidir légèrement.
+
+⸻
+
+🧂 Assaisonnement
+• Sauce soja — 20 g
+• Sauce d’huître — 12 g
+• Huile de sésame — 8 g
+• Sel — 4 g
+• Poivre blanc — un peu
+
+⸻
+
+👩‍🍳 Étapes clés
+1️⃣ Couper la ciboulette
+2️⃣ Ajouter un peu d’huile dessus
+👉 technique asiatique anti-eau
+3️⃣ Mélanger le bœuf + œuf + assaisonnement
+4️⃣ Ajouter l’eau au gingembre PETIT À PETIT
+👉 le bœuf devient ultra tendre
+5️⃣ Ajouter la ciboulette à la fin
+6️⃣ Plier les raviolis simplement
+7️⃣ Cuire 4–5 minutes dans l’eau bouillante
+
+⸻
+✅ Résultat
+🥟 farce ultra juteuse
+🌿 parfum frais de ciboulette
+🔥 texture tendre comme au restaurant asiatique
